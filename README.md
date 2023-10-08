@@ -2,7 +2,7 @@
 
 Link for Demonstration Video 
 
-https://drive.google.com/file/d/143ikmj5Y29-2je6-vYK70gr7HFwwQeHe/view?usp=drive_link
+https://drive.google.com/file/d/143ikmj5Y29-2je6-vYK70gr7HFwwQeHe/view?usp=sharing
 
 Link for Dashboard 1
 
